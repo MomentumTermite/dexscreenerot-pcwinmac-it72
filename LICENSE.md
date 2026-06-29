@@ -1,4 +1,4 @@
-# 
+# Turbo dexscreener sniper bot fluxo de trabalho para Mac OS | Avançado dexscreener sniper bot fluxo de trabalho para PC Windows. Com medição de volatilidade e gestão de margem — otimizado para máximo desempeño en cada plataforma.
 
 
 
